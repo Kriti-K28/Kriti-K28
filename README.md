@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on Web Development , Game Development
 - 🤔 I’m looking for help with nothing.
 - 💬 Ask me about Unity , Javascript
-- 📫 How to reach me: Email: kritikumari2811@gmail.com
+- 📫 How to reach me: Email: kkumari2811@gmail.com
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I love photography , doing painting and reading books
 
